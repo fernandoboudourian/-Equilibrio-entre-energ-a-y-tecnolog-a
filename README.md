@@ -1,1 +1,2 @@
-# -Equilibrio-entre-energ-a-y-tecnolog-a
+# -Equilibrio-entre-energía-y-tecnología
+ El sector energético ofrece estabilidad y rentabilidad, esencial para quienes buscan seguridad en sus inversiones. Por otro lado, la tecnología lidera la innovación, con tendencias como la inteligencia artificial que moldean el futuro. Cada sector responde a un perfil distinto: estabilidad frente a crecimiento disruptivo. La clave está en diversificar para equilibrar el presente con las oportunidades del mañana. 
